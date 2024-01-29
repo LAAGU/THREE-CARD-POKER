@@ -1,2 +1,2 @@
 # THREE-CARD-POKER
-A game of Three Card Poker For Windows 
+THIS GAME IS STILL UNDER DEVELOPMENT IF YOU WANT UPDATES PLEASE JOIN https://discord.gg/rpGVKUTSZg
