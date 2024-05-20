@@ -1,3 +1,3 @@
 # THREE CARD POKER
 
-PLEASE JOIN https://discord.gg/rpGVKUTSZg For Updates
+PLEASE JOIN https://discord.gg/rpGVKUTSZg For Updates and Rewards.
